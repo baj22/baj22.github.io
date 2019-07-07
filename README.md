@@ -1,1 +1,0 @@
-# baj22.github.io
